@@ -4,6 +4,6 @@ a guy is new to the world  he does not know much of anything in this place. He k
 
 -Mel: Dwayne Johnson
 -the ex: Rihanna
--new love: Macbook pro
+-new love: Anne Hathaway
 -investor: Will Smith
 -nemisis: Jonah hill
